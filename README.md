@@ -1,1 +1,2 @@
-čitaj me ili ti readme file
+ja sam nesto drugo sada napisao
+kuzis
